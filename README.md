@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @m-laca
-- 👀 I’m interested in semiconductors
+- 👀 I’m interested in semiconductors and computer science
 - 🌱 I’m currently learning Mandarin
 - 💞️ I’m looking to collaborate on anything! I like to learn! 
 - 📫 How to reach me - just send me a message here!
