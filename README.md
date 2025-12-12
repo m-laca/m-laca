@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything! I like to learn! 
 - 📫 How to reach me - just send me a message here!
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: My go-to movie is watching and re-watching Harrry Potter while I am working
+- ⚡ Fun fact: My go-to movie is Harrry Potter while I am working
 
 <!---
 m-laca/m-laca is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
